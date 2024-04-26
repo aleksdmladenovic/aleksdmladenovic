@@ -14,7 +14,7 @@ When I'm not coding, you can find me playing tennis, basketball and participatin
 
 <hr/>
 
-## 🛠️ My Skills
+## 🛠️ ToolBox & Interests
 
 ### Languages
 
